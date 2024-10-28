@@ -8,3 +8,8 @@ Showcase your best self—whether that means a fresh-from-the-groomer glamour sh
 
 
 ## Photograpichs it is good , i have bad eyes , Can i over all nose dag ass ?
+
+
+
+
+Practic git push = git fitch + git merge. 
